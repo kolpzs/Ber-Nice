@@ -1,2 +1,2 @@
 # Ber-Nice
-PLEASE MAMAKI
+Aqui é um trabalho sério.
